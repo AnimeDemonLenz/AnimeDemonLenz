@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AnimeDemonLenz
+- 👀 I’m interested in anime :P
+- 🌱 I’m currently learning art
+- And please don't judge me
